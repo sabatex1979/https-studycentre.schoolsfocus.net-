@@ -1,1 +1,1 @@
-# https-studycentre.schoolsfocus.net-
+https://studycentre.schoolsfocus.net
